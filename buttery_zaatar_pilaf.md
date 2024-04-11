@@ -1,4 +1,4 @@
-#Buttery za'atar & almond pilaf 
+# Buttery za'atar & almond pilaf 
 
 **Ingredients:**
 
